@@ -1,4 +1,4 @@
-# January 8, 2025
+`# January 8, 2025
 I enjoyed that the teachers were really understanding and that the teachers are really helpful and overall i like the classes.
 # December 16, 2024
 Yes
@@ -12,7 +12,8 @@ Technology can help close the language gap between generations. For example,teac
 But its important to use these tools carefully.Teachers should stay professional and be respectful of different cultures when using slang. By using technology wisely, teachers can better connect with their students and make learning more inclusive for everyone.
 |Name|Power|Challenge|
 |----|-----|---------|
-|    |     |         |
-|    |     |         |
-|    |     |         |
-|    |     |         |
+|Zara|Telekenesis|Secure Building|
+|Aether|Weather Manipulation|Prevent assassination|
+|thorne|Invisibility|UnderWater Rescue|
+|silver|Mind Control|Retrieve stolen goods|
+|Tangier|Shapeshifting|Extract Prisoner|
