@@ -10,6 +10,7 @@ You can use different types data structures like lists,dictionaries,and database
 # February 24, 2025
 Technology can help close the language gap between generations. For example,teachers can use apps to learn the latest slang, making it easier to connect with their students. This helps create a friendlier and more understanding classroom. Translation tools can also help everyone understand new slang terms.
 But its important to use these tools carefully.Teachers should stay professional and be respectful of different cultures when using slang. By using technology wisely, teachers can better connect with their students and make learning more inclusive for everyone.
+# March 3, 2025
 |Name|Power|Challenge|
 |----|-----|---------|
 |Zara|Telekenesis|Secure Building|
@@ -17,3 +18,6 @@ But its important to use these tools carefully.Teachers should stay professional
 |thorne|Invisibility|UnderWater Rescue|
 |silver|Mind Control|Retrieve stolen goods|
 |Tangier|Shapeshifting|Extract Prisoner|
+# March 21, 2025
+During spring break, i used my phone a lot to play games, call friends, and text. PLaying games was a fun way to relax and pass the time. I really enjoyed playing games and trying to beat my high scores.
+Calling and texting my friends was another big part of my break.It was great to stay in touch and catch up with everyone. We made plans, shared funny stories, and just stayed connected. My phone really helped make my spring break more fun and social.
