@@ -21,3 +21,6 @@ But its important to use these tools carefully.Teachers should stay professional
 # March 21, 2025
 During spring break, i used my phone a lot to play games, call friends, and text. PLaying games was a fun way to relax and pass the time. I really enjoyed playing games and trying to beat my high scores.
 Calling and texting my friends was another big part of my break.It was great to stay in touch and catch up with everyone. We made plans, shared funny stories, and just stayed connected. My phone really helped make my spring break more fun and social.
+# March 24, 2025
+Using technology in sports has good and bad sides. It can make watching games more fun by giving more details about the game. For example, Ai can guess who might win, which can make it more exciting. But, it can also make the game feel less surprising if we know too much. Watching games on socail media or online can also feel less personal.
+Technology in sports is like a double-edged sword. It can make games more interesting, but it can also take away some of the fun surprises. In the end, it's up to each fan to decide how they feel about it.Everyone has their own way of enjoying sports.
