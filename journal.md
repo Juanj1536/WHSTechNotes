@@ -24,3 +24,9 @@ Calling and texting my friends was another big part of my break.It was great to 
 # March 24, 2025
 Using technology in sports has good and bad sides. It can make watching games more fun by giving more details about the game. For example, Ai can guess who might win, which can make it more exciting. But, it can also make the game feel less surprising if we know too much. Watching games on socail media or online can also feel less personal.
 Technology in sports is like a double-edged sword. It can make games more interesting, but it can also take away some of the fun surprises. In the end, it's up to each fan to decide how they feel about it.Everyone has their own way of enjoying sports.
+# March 31, 2025
+1.Right now im feeling pretty good mentally, emotionally, and physically.
+2.The most stressfull part of school is towards the end of the day whenever im more tired.
+3.Some things I could do to not be stressed is take a nap or take a break.
+4.A goal I have for the rest of the year is to have mostly A's and mabey a B. I will try doing my homework and all my assignments.
+5.I never feel overwhelmed.
