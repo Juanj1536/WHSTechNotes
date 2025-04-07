@@ -1,4 +1,4 @@
-`# January 8, 2025
+# January 8, 2025
 I enjoyed that the teachers were really understanding and that the teachers are really helpful and overall i like the classes.
 # December 16, 2024
 Yes
@@ -30,3 +30,5 @@ Technology in sports is like a double-edged sword. It can make games more intere
 3.Some things I could do to not be stressed is take a nap or take a break.
 4.A goal I have for the rest of the year is to have mostly A's and mabey a B. I will try doing my homework and all my assignments.
 5.I never feel overwhelmed.
+# April 7, 2025
+Artifical intelligence is becoming more popular in schools. AI tutors can help students learn and get better test scores. A school in Austin, Texas used AI tutors to help students get ready for tests, and the results were great. The students' scores got so much better that they were in the top 2% in the whole country.AI tutors can give students lessons that are just right for them, find out where they need more help, and give feedback and support. They can also help students stay organized and manage their time well. While AI tutors can be really useful, it's important to remember that they can't replace human teachers. Human teachers can give emotional support, guidance, and mentorship that AI tutors can't.
