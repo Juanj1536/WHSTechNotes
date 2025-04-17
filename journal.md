@@ -32,3 +32,6 @@ Technology in sports is like a double-edged sword. It can make games more intere
 5.I never feel overwhelmed.
 # April 7, 2025
 Artifical intelligence is becoming more popular in schools. AI tutors can help students learn and get better test scores. A school in Austin, Texas used AI tutors to help students get ready for tests, and the results were great. The students' scores got so much better that they were in the top 2% in the whole country.AI tutors can give students lessons that are just right for them, find out where they need more help, and give feedback and support. They can also help students stay organized and manage their time well. While AI tutors can be really useful, it's important to remember that they can't replace human teachers. Human teachers can give emotional support, guidance, and mentorship that AI tutors can't.
+# April 14, 2025
+Some states have made laws that stop students from using their phones at school. They also stop students from using social media at school. People who like these laws say they help students focus on learning and stop bullying
+Other people think these laws are bad. They say students need their phones for emergencies and to stay connected with their families. They also say that students should be able to learn how to use social media safely.
