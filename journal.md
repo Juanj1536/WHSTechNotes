@@ -35,3 +35,5 @@ Artifical intelligence is becoming more popular in schools. AI tutors can help s
 # April 14, 2025
 Some states have made laws that stop students from using their phones at school. They also stop students from using social media at school. People who like these laws say they help students focus on learning and stop bullying
 Other people think these laws are bad. They say students need their phones for emergencies and to stay connected with their families. They also say that students should be able to learn how to use social media safely.
+# May 5, 2025
+I believe 100 unarmed people could not defeat a silverback gorilla. Silverback gorillas possess immense strenght, sharp teeth, and powerful claws. A single swipe could infict serious injury, and their size and weight make them difficult to subdue. While a coordinated group might attempt to overwhelm the gorilla, the risk of severe injury or death to the people is extremely high. The potential for harm outweights any chance of success. This highlights the importance of respecting the power of nature and avoiding dangerous, ill-convinced challanges.
